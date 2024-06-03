@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **Apurwa.rokade@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1jYGQ609NJZEaXhJghuErcQuU7xo5x51m/view?usp=sharing]([https://drive.google.com/file/d/1jYGQ609NJZEaXhJghuErcQuU7xo5x51m/view?usp=sharin](https://drive.google.com/file/d/17x0dcUSHXFjVUToOvWGOKtWOtVvU_CMj/view?usp=sharing)g)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1jYGQ609NJZEaXhJghuErcQuU7xo5x51m/view?usp=sharing](https://drive.google.com/file/d/17x0dcUSHXFjVUToOvWGOKtWOtVvU_CMj/view?usp=sharing)
 
 
 
